@@ -1,4 +1,4 @@
-https://raw.githubusercontent.com/abhisheknaiidu/abhisheknaiidu/master/code.gif
+
 ### Hey, Hi there 👋
 i'm Forkan
 
