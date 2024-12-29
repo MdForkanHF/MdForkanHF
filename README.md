@@ -9,7 +9,9 @@ Portfolio: https://mdforkanhossainfahim.netlify.app/
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=MdForkanHF)](https://github.com/ryo-ma/github-profile-trophy)
 
-![fhf QR YT iron man](https://github.com/user-attachments/assets/79d11f0d-4181-41a8-b38f-abc212eb9b84)  ![fhf QR linkedin bird 30](https://github.com/user-attachments/assets/5bbf0600-6d6d-4716-b079-8047a5282174)
+Yes, u can scan the QR.
+
+![fhf QR YT iron man](https://github.com/user-attachments/assets/79d11f0d-4181-41a8-b38f-abc212eb9b84) ... ![fhf QR linkedin bird 30](https://github.com/user-attachments/assets/5bbf0600-6d6d-4716-b079-8047a5282174)
 
 
 <!--
