@@ -9,7 +9,8 @@ Portfolio: https://mdforkanhossainfahim.netlify.app/
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=MdForkanHF)](https://github.com/ryo-ma/github-profile-trophy)
 
-![fhf QR YT iron man](https://github.com/user-attachments/assets/fcfd331c-89ce-43c0-92a3-2c0d56e9d3c0) ![fhf QR linkedin bird 30](https://github.com/user-attachments/assets/f188adfb-8537-4cbc-92fd-ec5bf6078ef5)
+![fhf QR YT iron man](https://github.com/user-attachments/assets/79d11f0d-4181-41a8-b38f-abc212eb9b84)
+
 
 
 <!--
