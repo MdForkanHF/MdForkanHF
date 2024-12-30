@@ -3,7 +3,7 @@
 
 wishing you a good day.
 
-i'm Forkan
+i'm Forkan (he/him)
 
 Portfolio: https://mdforkanhossainfahim.netlify.app/
 
